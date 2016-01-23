@@ -6,7 +6,7 @@ layout: default
 
 ### Raunzen bringt nix, wählen gehen
 
-Wie ihr bin auch ich angepisst. Darauf dass Menschen in unserem Land wie Verbrecher beschimpft werden, nur weil sie aus einem Kriegsgebiet kommen. Darauf dass bei allem gespart werden kann, nur nicht bei der Hilfe für die Schwächsten in der Bevölkerung. Dass es vollkomen ohne jede Konsequenzen bleibt, sowohl personell als auch inhaltlich, wenn den Großparteien bei jeder Wahl mehr Stimmen verloren gehen.
+Wie ihr bin auch ich angepisst. Darauf dass Menschen in unserem Land wie Verbrecher beschimpft werden, nur weil sie aus einem Kriegsgebiet kommen. Dass es vollkomen ohne jede Konsequenzen bleibt, sowohl personell als auch inhaltlich, wenn den Großparteien bei jeder Wahl mehr Stimmen verloren gehen.
 
 Darauf dass jedes politische Thema solange zerdiskutiert und in die eine oder andere politische Schublade geschoben wird bis es eine österreichische Lösung gibt. Wo dann wieder nix weiter geht. Mir ist zum kotzen wenn ich die ständigen Umfaller und Rückgradlosigkeiten der Großparteien zu erdulden habe.
 
@@ -48,7 +48,7 @@ Und so gut sich auch aufregen über die Situation anfühlen mag, haben wir doch 
 
 #### Wer bist du eigentlich
 
-Flo, 29 und wohn im 2ten. Informatik in Wien studiert und in den letzten Jahren zwischen Wien und USA gependelt wegen [Codeship](https://codeship.com). Nachdem ich jetzt ausgestiegen bin hab ich Zeit etwas anderes zu machen und da bietet es sich doch an den VdB zum Bundespräsident zu machen.
+Flo, 29 und wohn im 2ten und [@flomotlik](https://twitter.com/flomotlik) auf Twitter. Informatik in Wien studiert und in den letzten Jahren zwischen Wien und USA gependelt wegen [Codeship](https://codeship.com). Nachdem ich jetzt ausgestiegen bin hab ich Zeit etwas anderes zu machen und da bietet es sich doch an den VdB zum Bundespräsident zu machen.
 
 Bin langjähriger Grün Wähler, aber weder Mitglied noch sonst in Organisation eingebunden. Ich hab der VdB Kampagne schon geschrieben, aber nicht nicht aktiv eingebunden.
 
